@@ -19,3 +19,7 @@ Projects And Their Features
 
 Materials Needed:
 -  
+
+
+
+I'll prefer to be paid with time, maybe per week or per month, we shall discuss that later
